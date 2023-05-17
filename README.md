@@ -75,3 +75,9 @@ Developers:
 ## Donate
 
 **uang? kopi? ga usah dulu w guiss untuk skrng mah**
+
+
+## Support Me 
+## (lamun beki ka aing sok w bisi di hanca ku ainggg ok by risky.manuel)
+### [**My Instagram: @risky.manuel**](https://www.instagram.com/risky.manuel)    
+Untuk nanya2 sok w dm aing heuh sama2 belajar mah untuk ngarejetkeun situs bok*p jeung slott nge dibere duit lah [**Instagram**](https://www.instagram.com/risky.manuel).
